@@ -1,1 +1,1 @@
-![Screenshot_20231018_205813](https://github.com/Annisaraulitaa/unit1-pathway3-D121211090/assets/130150985/630db898-0fb2-4048-85fc-1a5dd0713e6a)
+<img width="212" alt="image" src="https://github.com/Annisaraulitaa/unit1-pathway3-D121211090/assets/130150985/93e439c6-c66d-4a09-b283-c38b42e8b2de">
